@@ -1,4 +1,4 @@
 # boo-yah
 it'not about me
-it's about the fact what are we doing dude..
+boo-yaah it's an expression of a excitement,ythat involves the happiness.
 help me to learn sonmething
